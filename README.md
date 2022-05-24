@@ -16,6 +16,4 @@ What you will see here:
 
 You can reach me through LinkedIn, which you can access via this link: https://www.linkedin.com/in/nswatanabe/
 
-I am a pretty lowkey/chill dude, so if you have any questions, comments, or I guess any watercooler talk, please message me on there. But please no soliciting.. (:
-
 /*
